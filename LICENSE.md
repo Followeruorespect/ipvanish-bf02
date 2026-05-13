@@ -1,4 +1,4 @@
-
+Enhance your IPVanish experience with IPVanish advanced App: multi-device-support & IP-masking, the #1 app. Includes multi-device-support and IP-masking for a safer and more
 
 
 
